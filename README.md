@@ -7,7 +7,7 @@ Description: Hero Homes Greater Noida offers premium 3 BHK apartments at Sector 
 
 <a href = "https://www.herohomenoida.com/">Hero Homes Greater Noida</a> is a new residential development by Hero Realty, the real estate arm of the Hero Group, located in the fast-emerging Sector MU of Greater Noida. Designed as a low-density, resort-inspired community, Hero Homes Greater Noida offers premium 3 BHK apartments for homebuyers seeking space, privacy, and long-term value. With the Noida International Airport at Jewar now operational nearby, Hero Homes Greater Noida is positioned at the center of one of NCR's biggest infrastructure-led growth stories.
 
-<h2>About Hero Homes Greater Noida<h2>
+<h2>About Hero Homes Greater Noida</h2>
 
 <a href = "https://www.linkedin.com/pulse/i-researched-hero-homes-greater-noida-so-you-dont-have-vaibhav-pandey-mly9c/">Hero Homes Sector MU</a> is spread across approximately 4.75 acres and comprises three residential towers with 525 apartments. Unlike densely packed high-rises, Hero Homes Greater Noida has been planned with only six units per floor, ensuring residents enjoy more privacy, better natural light, and a less congested living experience. The project focuses on open landscaped spaces, wellness-driven design, and community-oriented amenities that go beyond just four walls.
 
